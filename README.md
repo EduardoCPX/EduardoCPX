@@ -7,6 +7,9 @@ Meu nome é Eduardo teleken...
 
  ### Converso por aqui ⬇️
 
+ teleken.peres@escola.pr.gov.br
+ 
  @vn_eduu_px
+ 
 
  ![](https://media.tenor.com/yEh61qRI_eIAAAAj/goku-pet.gif)
