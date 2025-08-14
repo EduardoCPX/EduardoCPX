@@ -9,7 +9,7 @@ Meu nome é Eduardo teleken...
 
  teleken.peres@escola.pr.gov.br
  
- @peresz_zz
+ @edu._
  
 
  ![](https://media.tenor.com/yEh61qRI_eIAAAAj/goku-pet.gif)
